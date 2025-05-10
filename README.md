@@ -1,1 +1,1 @@
-first ever trust
+first ever trust with proof
